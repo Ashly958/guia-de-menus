@@ -11,3 +11,6 @@ La cocina italiana se caracteriza por su simplicidad. Los platos italianos suele
 + **Risotto alla milanese.**
 + **Gelato.**
 
+# <span style="color:#d80990">BEBIDA TIPICA DE ITALIA</span> ​🇮🇹​🍷​
+
+El café es la bebida por excelencia de los italianos. Al igual que los españoles, los italianos no pueden pasar ni un día sin tomar al menos una taza de café. Además hay muchas variantes de café italiano: capuccino, macchiatto, ristretto, americano, lungo, ristretto, corretto, freddo, entre otros.
