@@ -10,4 +10,4 @@ Una dieta vegetariana es aquella que no incluye carne ni mariscos . Sin embargo,
 + Legumbres.
 + Semillas.
 + Nueces.
-+ Puede incluir huevos y/o leche, si es lacto-ovo vegetariano.
++ Puede incluir huevos y/o leche, si es lacto-ovo vegetariano....
