@@ -22,3 +22,21 @@ Entre los principales platos de CHINA se encuentran:
 + *椰树牌椰汁 (Yeshupai Yezi)*
 + *康师傅冰红茶 (Kangshifu Bing Hong Cha)*
 
+
+# <span style="color:#d6c2ff">CONSEJOS Y SUGERENCIAS</span> 🇨🇳​🧳​
+
+si vas a viajar a China ten en cuenta esto: 
+
+1. LOS LUGARES MÁS TURISTICOS DE CHINA:     
+    + **Guilin.**
+    + **Shanghái.**
+    + **La Gran Muralla China.**
+    + **Pekín.**
+    + **Guerreros de Xian.**
+    + **Fenghuang.**
+    + **Buda de Leshan.**
+    + **Parque Nacional Zhangjiajie.**
+
+2. Reserva con antelación las entradas a los lugares más visitados. 
+
+3. Ahorra en tus visitas con la tarjeta turística.
