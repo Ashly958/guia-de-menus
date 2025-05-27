@@ -12,3 +12,9 @@ Entre los ingredientes fundamentales de la gastronomía mexicana se encuentran e
 + **Mole.**
 
 # <span style="color:#e82c15">BEBIDAS TIPICAS DEL MEDITERRÁNEO</span> ​​🇲🇽---​🍷​🥂​🫗​🧉​​​​​​​​​---🇲🇽​
++ **Tequila** 
++ **Mezcal.**
++ **Raicilla.**
++ **Margarita**
++ **Carajillo**
+
