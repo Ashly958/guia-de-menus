@@ -11,3 +11,12 @@ Las carnes aportan entre un 16-22% de proteínas de alto valor biológico, es de
 + **Carne de conejo.**
 + **Carne de cerdo.**
 + **Carne de oveja y cabra.**
+
+# <span style="color:#fbed7c">GRADOS DE COCCIÓN </span> ​​​​🥩​🍳​
+
+| GRADO | DESCRIPCIÓN | 
+|----------|----------|
+| Crudo   | no cocinado del todo; en interior rojo  | 
+| Sellada o vuelta y vuelta    | muy rojo y frío ("blue rare") la carne está a 3/8  | 
+| Medio cruda  | rojo en su interior; la zona exterior rosada la carne está a 5/8   | 
+
