@@ -13,3 +13,12 @@ Entre los principales platos de CHINA se encuentran:
 + **galleta de luna (月餅)**
 + **Sopa wantán (馄饨)**
 + **baijiu (白酒)**
+
+# <span style="color:#c2ccff">BEBIDAS RECOMENDADAS</span> 🇨🇳​🍷​
+
++ *娃哈哈 (Wahaha)*
++ *旺仔牛奶 (Wang Zai Niu Nai)*
++ *可乐 (Cocacola)*
++ *椰树牌椰汁 (Yeshupai Yezi)*
++ *康师傅冰红茶 (Kangshifu Bing Hong Cha)*
+
