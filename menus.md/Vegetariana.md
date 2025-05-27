@@ -4,7 +4,7 @@ Una dieta vegetariana es aquella que no incluye carne ni mariscos . Sin embargo,
 
 # <span style="color:#edab57">DIETA VEGETARIANA</span> ​​​🍽️
 
-+ Vegetales.
++ Vegetales. 
 + Frutas.
 + Granos integrales.
 + Legumbres.
