@@ -10,3 +10,7 @@ Una comida japonesa estándar, consiste generalmente de una taza de arroz japon�
 + **SOBA.**
 + **TAKOYAKI**
 + **ONIGIRI.**
+
+# <span style="color:#f5b0dd">BEBIDA TIPICA DE JAPÓN</span> ​​​​🇯🇵​​​​​​​🎎​🍷​
+
+El sake, más conocido en Japón como nihonshu, está disponible en diferentes sabores y graduaciones, y se puede tomar caliente, frío o a temperatura ambiente.
