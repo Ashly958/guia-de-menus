@@ -17,4 +17,6 @@ La comida mediterránea se caracteriza por ser rica en alimentos de origen veget
 + **Horchata.**
 + **Agua de Valencia.**
 
+# <span style="color:#6ed7fa">CONSEJOS PARA VIAJAR AL MEDITERRÁNEO</span> ​​​​​​🛥️​🚢​🧳​
 
+El Mediterráneo ha acogido a viajeros desde hace mucho tiempo, lo que ha dado lugar a una infinidad de opciones. Pero con las aguas turquesas de la región, sus espectaculares playas y sus pintorescos pueblos costeros, AdventureSmith cree que la mejor manera de descubrir el Mediterráneo es en barco, en un pequeño barco .
