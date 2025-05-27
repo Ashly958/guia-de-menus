@@ -14,3 +14,8 @@ Una comida japonesa estándar, consiste generalmente de una taza de arroz japon�
 # <span style="color:#f5b0dd">BEBIDA TIPICA DE JAPÓN</span> ​​​​🇯🇵​​​​​​​🎎​🍷​
 
 El sake, más conocido en Japón como nihonshu, está disponible en diferentes sabores y graduaciones, y se puede tomar caliente, frío o a temperatura ambiente.
+
+# <span style="color:#cd65ea">CONSEJOS PARA VIAJAR A JAPÓN</span> ​​​​​🇯🇵​​​​​​​​👘​🏯​⛩️​🧳​
+
+Todos los visitantes deben presentar su pasaporte en la frontera japonesa para poder entrar en el país. Para cumplir con los requisitos de entrada, los viajeros de algunas nacionalidades necesitan un visado, mientras que los de otras pueden entrar directamente sin visado.
+
