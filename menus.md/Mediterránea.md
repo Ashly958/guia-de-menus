@@ -10,3 +10,11 @@ La comida mediterránea se caracteriza por ser rica en alimentos de origen veget
 + **Tabulé.**
 + **Hummus**
 
+# <span style="color:#23d6b1">BEBIDAS TIPICAS DEL MEDITERRÁNEO</span> ​​​​​​​​🌐​🍷​
+
++ **Zumo de naranjas valencianas**
++ **Sangría española.**
++ **Horchata.**
++ **Agua de Valencia.**
+
+
