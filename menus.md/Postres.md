@@ -2,7 +2,7 @@
 
 Cuando se habla de postres se entiende alguna preparación dulce, bien sean cremas, tartas, pasteles, helados, bombones, etc... Por extensión se denomina postre a cualquier comida dulce incluso si su objetivo no es ser ingerida al final de la comida. Algunos ejemplos son las galletas, chocolates y magdalenas.
 
-# <span style="color:#d19fed">RINCIPALES POSTRES</span> ​​​🥞​🍡​🍧​🍨​🍪​🍮​​​​🍽️
+# <span style="color:#d19fed">PRINCIPALES POSTRES</span> ​​​🥞​🍡​🍧​🍨​🍪​🍮​​​​🍽️
 
 
 + Tiramisú, el postre mítico de Italia. 
